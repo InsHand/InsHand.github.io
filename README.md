@@ -1,4 +1,5 @@
 Privacy Policy
+-------------
 
 Protecting your privacy is important to us. We hope the following statement will help you understand how our app deals with the personal identifiable information (the Google Play Platform) you may occasionally provide to us via Internet (the Google Play Platform).
 
