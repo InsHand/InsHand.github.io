@@ -29,4 +29,4 @@ We respect the copyright of the owners. So please DO NOT download the videos wit
 
 Contact usIt should be noted that whether or not to send us your feedback or bug report is a completely voluntary initiative upon your own decision.  
 
-If you have any questions or suggestions with respect to this Privacy Policy or our privacy system, please contact us at: [funkwings77@gmail.com]
+If you have any questions or suggestions with respect to this Privacy Policy or our privacy system, please contact us at: [funkwings77@gmail.com](https://mail.google.com/mail)
